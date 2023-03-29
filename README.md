@@ -5,7 +5,7 @@ Salutations!
  I'm looking forward to creatively finding solutions using these techniqes in new frontiers. 
  
  I'm currently a Masters of Data Science student tyring to find time for individual projects to go along with work and school. 
- I'm looking for new career and internship oppertunities in the spring and summer of 2023. 
+ I'm looking for new career and internship oppertunities in the summer snf fall of 2023. 
  Best way to reach me is via email at jjbocek@gmail.com or LinkedIn (www.linkedin.com/in/jeffrey-bocek-479b78171)
 
 <!---
